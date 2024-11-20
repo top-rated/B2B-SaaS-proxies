@@ -45,7 +45,7 @@ Maximize subscriptions within the current budget.
 - Subscription 7,020 vs 4,216
 - Conversions grew by 66.5%
 - СРА was $1.34 vs $2.14
-
+![Picture](https://lh7-rt.googleusercontent.com/docsz/AD_4nXdSaOrWSO6FslCa-_8-3GnkUQ1jPmU_6H5GjSdcmcbxqhA-am7zDW4d7ziMFMJVxH9MLIJZq-067gRLma0_zDZRhFopnNDUSKq44pAgQ8V-zBA5lrR56xvYtcgoUCqYdxzMei3_fbsTOIiMBCqdORGB6yhl)
 
 
 Conversions grew even in the winter period of decreased demand. All the ongoing jobs and account expansion were focused on conversion growth within the given and only slightly increased budget.
