@@ -36,7 +36,7 @@ Always unique ad copies for every ad group with maximum symbols usage and dynami
 Subscriptions 714 vs 122
 Conversions grew by 485%
 СРА was $4.25 vs $12.58
-
+(https://lh7-rt.googleusercontent.com/docsz/AD_4nXdPErP2mmQY4kqfa_g2MvHdaOVwAg8ecvCmgH0fbjRiEfJ5ziXHURyNyi9WwQDXylXI1eV6Ym9Lhrx9hESWSksb687922u59joWyjjwy-22FHMure-UVrIP4KPRVF5adME5qPsHl8WX0_nHCFrJ6y3solRx)
 
 
 
